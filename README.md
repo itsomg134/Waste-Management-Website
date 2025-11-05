@@ -111,3 +111,6 @@ Om Gedam – [@yitsomg134](https://x.com/its_om_g_143?t=8I7F1GBJO6jLU1AaoQLgYQ&s
 - 📁 **Portfolio**: [ogworks.lovable.app](https://ogworks.lovable.app) – Explore my technical and entrepreneurial projects  
 - 💼 **LinkedIn**: [Om Gedam](https://www.linkedin.com/in/om-gedam-39686432a) – Let’s connect professionally  
 - 🧑‍💻 **GitHub**: [@itsomg134](https://github.com/itsomg134) – Browse my open-source contributions and project repositories  
+
+
+<img width="1891" height="4038" alt="image" src="https://github.com/user-attachments/assets/808c95c6-209d-480f-b564-f5a73472e2ac" />
